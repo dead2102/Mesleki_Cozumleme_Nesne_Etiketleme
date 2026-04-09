@@ -1,0 +1,1 @@
+# Mesleki_Cozumleme_Nesne_Etiketleme
